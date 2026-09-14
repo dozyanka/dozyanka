@@ -108,4 +108,4 @@ GitHub: [@dozyanka](https://github.com/dozyanka)
 
 ---
 
-<sub>Также использовал никнеймы / Also known as: DVSh, Dozya, Dozyanka</sub>
+<sub>Также использовал никнеймы / Also known as: DVSh, Dozya, Dozyanka, ShatalovVD</sub>
